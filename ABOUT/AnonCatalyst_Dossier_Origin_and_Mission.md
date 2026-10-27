@@ -2,7 +2,7 @@
 ## SUBJECT: AnonCatalyst
 **Classification:** Internal-Public / Covenant Leadership
 **Designation:** Founder, WinterGate Intelligence Collective (WIC)
-**Aliases:** 5c07ch, AnonCatalyst, The Architect, Big Boss (Community Designation)
+**Aliases:** 5c07ch, AnonCatalyst, The Architect (Community Designation)
 **Status:** Active — Relocating (IRL), Phase 2 Prep (URL)
 **Date:** October 27, 2026
 
